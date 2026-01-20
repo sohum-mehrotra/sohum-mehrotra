@@ -1,3 +1,3 @@
 ## Sohum Mehrotra 👋
 
-##### bunch of yap
+DS and Economics Student | University of Virginia | May  
